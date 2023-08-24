@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================================================================
 
 In this chapter, we'll cover tips for using nonverbal communication effectively during the interview process. Nonverbal communication, such as body language and facial expressions, can convey confidence, interest, and professionalism.
 

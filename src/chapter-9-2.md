@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 In this chapter, we'll cover strategies for navigating group interviews. Group interviews can be intimidating, but they also provide an opportunity to demonstrate your communication and collaboration skills.
 

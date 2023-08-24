@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 Salary negotiation can be a daunting prospect, but it's an important part of the hiring process. This chapter covers strategies for understanding the salary negotiation process, tips for researching and determining fair compensation, and strategies for negotiating benefits and perks.
 

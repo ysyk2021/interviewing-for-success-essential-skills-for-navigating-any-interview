@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication plays a crucial role in the interview process. This chapter covers strategies for reading and interpreting body language, controlling your own nonverbal cues, and creating a positive first impression.
 

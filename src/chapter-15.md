@@ -1,5 +1,3 @@
-Chapter 15: Creating Your Own Interview Preparation Plan
-========================================================
 
 An effective interview preparation plan is critical to successfully navigating any job interview. This chapter provides a step-by-step guide to creating your own personalized preparation plan, including identifying your strengths and weaknesses, developing a plan, and cultivating a winning mindset.
 

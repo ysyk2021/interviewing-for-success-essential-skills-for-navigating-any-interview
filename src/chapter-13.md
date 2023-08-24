@@ -1,5 +1,3 @@
-Chapter 13: Advanced Interviewing Techniques
-============================================
 
 Once you have mastered the basics of interviewing, there are advanced techniques that can help you stand out from other candidates and increase your chances of success. This chapter covers three advanced interviewing techniques: using storytelling to make your answers compelling, the STAR method for answering behavioral questions, and demonstrating cultural fit and alignment with company values.
 

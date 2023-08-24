@@ -1,5 +1,3 @@
-Chapter 12: Overcoming Interview Anxiety
-========================================
 
 Interview anxiety is a common experience for many job seekers. While it's natural to feel nervous before and during an interview, excessive anxiety can interfere with your ability to perform at your best. This chapter covers strategies for understanding the causes of interview anxiety, techniques for managing and reducing anxiety, and building confidence in your interview skills.
 

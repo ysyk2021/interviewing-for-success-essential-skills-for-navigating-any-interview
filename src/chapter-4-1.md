@@ -1,5 +1,3 @@
-Developing a Strong Personal Brand
-===========================================================================
 
 In this chapter, we'll cover how to develop a strong personal brand that showcases your unique skills and experiences and sets you apart from other candidates during the interview process.
 

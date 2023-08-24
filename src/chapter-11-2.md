@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 In this chapter, we'll focus on how to control your own nonverbal cues during an interview. Nonverbal communication can play a significant role in how you're perceived by the interviewer, making it important to be aware of and control your own nonverbal cues.
 

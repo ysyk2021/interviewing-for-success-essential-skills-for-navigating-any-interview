@@ -1,5 +1,3 @@
-Identifying the Company Culture and Values
-===================================================================================
 
 In this chapter, we'll cover how to identify the company culture and values of the organization you're interviewing with. Understanding these factors can help you prepare for the interview and demonstrate your fit with the company.
 

@@ -1,5 +1,3 @@
-Understanding Your Unique Value Proposition
-====================================================================================
 
 In this chapter, we'll cover how to understand your unique value proposition and use it to develop a strong personal brand that sets you apart from other candidates during the interview process.
 

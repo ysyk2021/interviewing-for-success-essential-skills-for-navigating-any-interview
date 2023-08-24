@@ -1,5 +1,3 @@
-Techniques for Effective Communication and Listening
-===============================================================================================================
 
 In this chapter, we'll cover techniques for effective communication and listening during the interview process. By communicating effectively and actively listening to the interviewer, you can demonstrate your professionalism and qualifications for the position.
 

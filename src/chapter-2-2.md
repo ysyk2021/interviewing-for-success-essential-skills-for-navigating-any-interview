@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-===========================================================================================
 
 In this chapter, we'll cover what to expect during the interview process, from preparing for the interview to following up afterwards. By understanding each step of the interview process, you can feel more confident and prepared for your upcoming interviews.
 

@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 In this chapter, we'll cover strategies for navigating phone and video interviews. By preparing appropriately, using effective communication and technology skills, and following up appropriately, you can make a positive impression and demonstrate your abilities even in non-traditional interview settings.
 

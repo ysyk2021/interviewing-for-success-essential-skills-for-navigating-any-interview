@@ -1,5 +1,3 @@
-Chapter 8: Following Up After the Interview
-===========================================
 
 In this chapter, we'll cover strategies for following up after the interview. This includes sending thank-you notes and follow-up emails, staying top-of-mind with hiring managers, and what to do if you don't get the job.
 

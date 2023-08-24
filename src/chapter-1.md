@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we'll introduce the importance of mastering interview skills for career success and provide an overview of the contents of this book.
 

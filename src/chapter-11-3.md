@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 In this chapter, we'll focus on how to create a positive first impression through nonverbal communication. A strong first impression can set the tone for the rest of the interview and help you stand out from other candidates.
 

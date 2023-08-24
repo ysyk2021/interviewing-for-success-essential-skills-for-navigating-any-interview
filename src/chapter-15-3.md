@@ -1,5 +1,3 @@
-Cultivating a Winning Mindset, Confidence, and Adaptability
-=====================================================================================================================
 
 In this chapter, we'll cover strategies for creating your own interview preparation plan. By cultivating a winning mindset, confidence, and adaptability, you can approach the interview process with a sense of empowerment and readiness.
 

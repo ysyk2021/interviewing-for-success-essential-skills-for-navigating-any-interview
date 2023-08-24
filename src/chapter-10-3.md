@@ -1,5 +1,3 @@
-Strategies for Negotiating Benefits and Perks
-==========================================================================================
 
 In this chapter, we'll cover strategies for negotiating benefits and perks in addition to salary. By understanding the value of benefits and perks, identifying what's negotiable, and effectively communicating your needs, you can negotiate a comprehensive compensation package that meets your needs.
 

@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-====================================================================================================
 
 Following up after an interview is just one way to stay top-of-mind with hiring managers, but it's not the only way. In this chapter, we'll cover strategies for staying in touch with hiring managers and keeping your candidacy front and center.
 

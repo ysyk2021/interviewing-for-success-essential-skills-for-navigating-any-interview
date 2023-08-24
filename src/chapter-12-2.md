@@ -1,5 +1,3 @@
-Techniques for Managing and Reducing Anxiety
-======================================================================================
 
 In this chapter, we'll cover strategies for managing and reducing interview anxiety. By practicing relaxation techniques, preparing thoroughly, and reframing negative thoughts, you can overcome interview anxiety and perform your best during the interview.
 

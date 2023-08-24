@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 In this chapter, we'll cover strategies for following up after an interview when you don't get the job. By staying positive, seeking feedback, and continuing to network, you can turn a rejection into an opportunity for growth.
 

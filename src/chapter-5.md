@@ -1,5 +1,3 @@
-Chapter 5: Answering Common Interview Questions
-===============================================
 
 In this chapter, we'll cover strategies for answering common interview questions. This includes questions about your background and experience, your strengths and weaknesses, and behavioral interview questions.
 

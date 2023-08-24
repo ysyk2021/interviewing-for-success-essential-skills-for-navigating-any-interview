@@ -1,5 +1,3 @@
-Commonly Asked Questions About Your Background and Experience
-==============================================================================================================
 
 Answering questions about your background and experience effectively is essential to demonstrating your qualifications and making a positive impression on potential employers. In this chapter, we'll explore commonly asked questions about your background and experience and techniques for answering them.
 

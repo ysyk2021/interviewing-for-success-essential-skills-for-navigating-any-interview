@@ -1,5 +1,3 @@
-Future Directions for Interview Preparation and Success
-===================================================================
 
 In this book, we've covered essential skills for navigating any interview, including researching the company, preparing responses to common questions, practicing, dressing appropriately, using confident body language, answering questions thoughtfully, following up after the interview, cultivating a winning mindset, controlling your own nonverbal cues, and identifying your strengths and weaknesses.
 

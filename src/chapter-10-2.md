@@ -1,5 +1,3 @@
-Tips for Researching and Determining Fair Compensation
-===================================================================================================
 
 In this chapter, we'll cover strategies for negotiating salary and benefits. By researching and determining fair compensation, understanding the employer's needs and priorities, and advocating for yourself, you can negotiate a fair package that meets your needs and aligns with the employer's budget.
 

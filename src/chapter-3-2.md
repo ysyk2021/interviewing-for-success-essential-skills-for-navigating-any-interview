@@ -1,5 +1,3 @@
-Understanding the Job Requirements and Responsibilities
-================================================================================================
 
 In this chapter, we'll cover how to understand the job requirements and responsibilities of the position you're interviewing for. By doing so, you can tailor your responses during the interview to demonstrate your fit with the role and increase your chances of success.
 

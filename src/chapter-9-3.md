@@ -1,5 +1,3 @@
-Second-Round and Final Interviews
-========================================================================================
 
 In this chapter, we'll cover strategies for navigating second-round and final interviews. These interviews are typically more in-depth and involve a higher level of scrutiny, so it's important to be prepared and confident.
 

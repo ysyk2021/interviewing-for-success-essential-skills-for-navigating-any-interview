@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, we covered essential skills for navigating any interview. Here's a summary of the key points:
 

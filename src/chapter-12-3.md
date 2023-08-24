@@ -1,5 +1,3 @@
-Building Confidence in Your Interview Skills
-======================================================================================
 
 In this chapter, we'll cover strategies for building confidence in your interview skills. By practicing and refining your interview skills, you can reduce anxiety and perform your best during the interview.
 

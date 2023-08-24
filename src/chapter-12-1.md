@@ -1,5 +1,3 @@
-Understanding the Causes of Interview Anxiety
-=======================================================================================
 
 In this chapter, we'll explore the causes of interview anxiety and how to address them. By understanding the root causes of your anxiety, you can develop strategies to manage it and perform your best during the interview.
 

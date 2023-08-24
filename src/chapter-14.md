@@ -1,5 +1,3 @@
-Chapter 14: Answering Difficult Interview Questions
-===================================================
 
 During an interview, you may be asked difficult or unexpected questions that catch you off guard. This chapter provides techniques and strategies for answering these types of questions, addressing potential red flags, and turning negative aspects into positives.
 

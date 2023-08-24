@@ -1,5 +1,3 @@
-Chapter 3: Preparing for Your Interview
-=======================================
 
 In this chapter, we'll cover strategies for preparing for your interview. By researching the company and position, understanding the job requirements and responsibilities, and identifying the company culture and values, you can demonstrate your knowledge and enthusiasm for the job and make a positive impression on the interviewer.
 

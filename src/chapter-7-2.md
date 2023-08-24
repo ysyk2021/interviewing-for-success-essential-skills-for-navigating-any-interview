@@ -1,5 +1,3 @@
-Building Rapport and Connection with the Interviewer
-===============================================================================================================
 
 In this chapter, we'll cover techniques for building rapport and connection with the interviewer during the interview process. By demonstrating your interest in the position and engaging with the interviewer, you can make a positive impression and increase your chances of success.
 

@@ -1,5 +1,3 @@
-Chapter 7: Communicating Effectively During the Interview
-=========================================================
 
 In this chapter, we'll cover strategies for communicating effectively during an interview. By using techniques for effective communication and listening, building rapport and connection with the interviewer, and paying attention to nonverbal communication, you can make a positive impression and demonstrate your communication skills.
 

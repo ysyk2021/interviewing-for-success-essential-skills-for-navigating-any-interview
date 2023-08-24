@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 In this chapter, we'll cover the importance of nonverbal communication during the interview process, how to interpret body language, and strategies for mastering your own nonverbal communication.
 

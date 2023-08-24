@@ -1,5 +1,3 @@
-Demonstrating Cultural Fit and Alignment with Company Values
-==========================================================================================================
 
 In this chapter, we'll cover strategies for demonstrating cultural fit and alignment with company values during an interview. By researching the company's culture and values, highlighting your own values and experiences that align with those of the company, and asking thoughtful questions, you can show that you're a strong candidate who would be a good fit for the company.
 

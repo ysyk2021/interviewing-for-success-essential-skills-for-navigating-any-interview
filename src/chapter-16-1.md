@@ -1,5 +1,3 @@
-Interviews with Successful Job Seekers and Hiring Managers
-===============================================================================================================================================
 
 In this chapter, we will provide interviews with successful job seekers and hiring managers to gain insights into their experiences and advice for interviewing success.
 
