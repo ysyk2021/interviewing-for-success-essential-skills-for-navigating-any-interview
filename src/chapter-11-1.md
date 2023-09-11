@@ -1,5 +1,4 @@
-Chapter 26: Reading and Interpreting Body Language
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fascinating world of nonverbal communication---specifically, reading and interpreting body language during interviews. Understanding the subtle cues conveyed through body language can provide valuable insights into the thoughts, feelings, and intentions of both interviewers and candidates.
 

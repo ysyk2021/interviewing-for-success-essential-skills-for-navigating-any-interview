@@ -1,5 +1,4 @@
-Chapter 22: Second-Round and Final Interviews
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the specifics of second-round and final interviews, which represent critical stages in the interview process. These interviews typically involve more in-depth assessments and require a heightened level of preparation and strategy.
 

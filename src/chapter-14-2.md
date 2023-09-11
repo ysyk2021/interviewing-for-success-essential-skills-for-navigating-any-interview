@@ -1,5 +1,4 @@
-Chapter 20: Strategies for Addressing Potential Red Flags or Concerns
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for addressing potential red flags or concerns that may arise during an interview. Learning how to handle these situations with professionalism and confidence can help you navigate interviews successfully.
 

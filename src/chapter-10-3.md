@@ -1,5 +1,4 @@
-Chapter 12: Strategies for Negotiating Benefits and Perks
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for negotiating the benefits and perks of a job offer. Negotiating these aspects of your compensation package is a crucial step in securing a position that aligns with your needs and goals.
 

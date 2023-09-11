@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Effective Communication and Listening
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential skills of effective communication and active listening during job interviews. Mastering these techniques is crucial for conveying your qualifications, understanding the interviewer's needs, and building a positive rapport.
 

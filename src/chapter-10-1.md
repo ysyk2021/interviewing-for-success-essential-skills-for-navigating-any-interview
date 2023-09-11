@@ -1,5 +1,4 @@
-Chapter 15: Understanding the Salary Negotiation Process
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will demystify the salary negotiation process, equipping you with the knowledge and strategies to navigate this crucial aspect of job interviews effectively.
 

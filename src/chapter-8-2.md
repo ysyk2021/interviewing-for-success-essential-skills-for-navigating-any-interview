@@ -1,5 +1,4 @@
-Chapter 29: Strategies for Staying Top-of-Mind with Hiring Managers
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies to ensure you remain memorable and stand out to hiring managers long after the interview. By implementing these techniques, you can increase your chances of success in a competitive job market.
 

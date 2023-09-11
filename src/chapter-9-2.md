@@ -1,5 +1,4 @@
-Chapter 21: Group Interviews
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the dynamics and strategies involved in group interviews, which are a unique form of interview where multiple candidates are evaluated simultaneously. Group interviews often require distinct skills and approaches to stand out and succeed.
 

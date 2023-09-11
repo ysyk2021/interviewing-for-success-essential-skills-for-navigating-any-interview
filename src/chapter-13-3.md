@@ -1,5 +1,4 @@
-Chapter 6: Demonstrating Cultural Fit and Alignment with Company Values
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the modern job market, it's not just your qualifications and experience that matter during an interview; demonstrating cultural fit and alignment with a company's values has become equally important. In this chapter, we will explore the significance of cultural fit and provide strategies for showcasing your alignment with a prospective employer's values during the interview process.
 

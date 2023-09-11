@@ -1,5 +1,4 @@
-Chapter 5: What to Expect During the Interview Process
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will guide you through the typical stages and components of the interview process, helping you prepare for what to expect at each step of your job interview journey.
 

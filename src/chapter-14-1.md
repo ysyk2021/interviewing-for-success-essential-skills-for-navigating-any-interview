@@ -1,5 +1,4 @@
-Chapter 17: Techniques for Answering Difficult or Unexpected Questions
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore valuable strategies and techniques for handling challenging and unexpected questions with confidence and poise during interviews.
 

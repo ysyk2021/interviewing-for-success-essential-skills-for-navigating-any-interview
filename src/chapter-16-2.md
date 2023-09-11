@@ -1,5 +1,4 @@
-Chapter 19: Insider Tips and Strategies for Interviewing Success
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will uncover valuable insider tips and strategies that will give you a competitive edge in any interview situation, helping you stand out and secure your desired position.
 

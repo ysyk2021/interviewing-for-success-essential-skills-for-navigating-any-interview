@@ -1,5 +1,4 @@
-Chapter 6: Cultivating a Winning Mindset, Confidence, and Adaptability
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial elements of cultivating a winning mindset, building confidence, and fostering adaptability to excel in interviews. Your mindset plays a pivotal role in how you approach interviews and handle the challenges that come your way.
 

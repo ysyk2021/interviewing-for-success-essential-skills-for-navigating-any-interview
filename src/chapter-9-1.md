@@ -1,5 +1,4 @@
-Chapter 18: Phone and Video Interviews
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the nuances of phone and video interviews, providing you with essential tips and strategies to excel in these increasingly common interview formats.
 

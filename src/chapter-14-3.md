@@ -1,5 +1,4 @@
-Chapter 23: Tips for Turning Negative Aspects into Positives
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques to effectively turn negative aspects, such as weaknesses, challenges, or past mistakes, into positive opportunities during interviews. Learning how to address these issues positively can help you leave a lasting impression and showcase your resilience and growth.
 

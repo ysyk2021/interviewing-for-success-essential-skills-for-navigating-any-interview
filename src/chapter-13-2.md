@@ -1,5 +1,4 @@
-Chapter 25: The STAR Method for Answering Behavioral Questions
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the STAR method---a highly effective approach for responding to behavioral questions during interviews. Understanding and mastering the STAR method can significantly enhance your ability to provide structured, compelling, and concise responses to showcase your skills and experiences.
 

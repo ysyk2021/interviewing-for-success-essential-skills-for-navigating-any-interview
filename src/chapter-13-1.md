@@ -1,5 +1,4 @@
-Chapter 28: Using Storytelling to Make Your Answers Compelling
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of storytelling as a tool to captivate your interviewers, make your answers memorable, and effectively convey your qualifications and experiences.
 

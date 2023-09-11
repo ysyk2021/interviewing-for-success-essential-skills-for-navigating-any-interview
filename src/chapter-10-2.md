@@ -1,5 +1,4 @@
-Chapter 13: Tips for Researching and Determining Fair Compensation
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial process of researching and determining fair compensation for your skills and experience. Understanding your worth in the job market is a fundamental step in achieving your career goals.
 

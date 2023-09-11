@@ -1,5 +1,4 @@
-Chapter 10: Identifying the Company Culture and Values
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of understanding a company's culture and values during the interview process. Discovering whether you align with an organization's ethos is crucial for finding a job that not only fits your skills but also resonates with your personal and professional values.
 

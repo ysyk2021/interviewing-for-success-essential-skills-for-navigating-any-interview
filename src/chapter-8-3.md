@@ -1,5 +1,4 @@
-Chapter 7: What to Do If You Don't Get the Job
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Interviews are a two-way street; while you're evaluating if the company is a good fit for you, they're doing the same. There will be times when you don't land the job, regardless of how well-prepared or suited you feel for the position. Handling rejection is an essential aspect of the job-hunting journey. In this chapter, we'll explore the constructive steps you should take if you don't get the job.
 

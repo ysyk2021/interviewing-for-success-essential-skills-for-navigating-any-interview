@@ -1,5 +1,4 @@
-Chapter 16: Building Confidence in Your Interview Skills
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques to help you boost your confidence in your interview skills, enabling you to shine in any interview scenario.
 

@@ -1,5 +1,4 @@
-Chapter 3: Identifying Your Strengths and Weaknesses
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey towards interview success, a crucial step is gaining a deep understanding of your strengths and weaknesses. This self-awareness not only helps you confidently answer interview questions but also assists in aligning your career aspirations with your unique attributes. This chapter will guide you through the process of self-assessment and provide strategies to effectively communicate your strengths and address your weaknesses during interviews.
 

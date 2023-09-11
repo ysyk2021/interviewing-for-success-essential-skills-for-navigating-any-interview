@@ -1,5 +1,4 @@
-Chapter 14: Techniques for Managing and Reducing Anxiety
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of effective techniques for managing and reducing anxiety before and during interviews. Mastering these strategies will help you stay calm, confident, and in control, enhancing your chances of interview success.
 

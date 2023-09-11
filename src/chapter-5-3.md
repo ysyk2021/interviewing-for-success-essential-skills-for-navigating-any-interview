@@ -1,5 +1,4 @@
-Chapter 6: Behavioral Interview Questions
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into behavioral interview questions, a common type of interview that assesses your past experiences and actions to predict your future behavior in the workplace. We'll explore what behavioral questions are, why they are used, and how to craft effective responses.
 

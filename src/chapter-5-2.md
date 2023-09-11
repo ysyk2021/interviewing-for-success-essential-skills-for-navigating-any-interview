@@ -1,5 +1,4 @@
-Chapter 8: Questions About Your Strengths and Weaknesses
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the commonly asked interview questions about your strengths and weaknesses. We'll discuss strategies for effectively addressing these questions and showcasing your qualifications while maintaining honesty and authenticity.
 

@@ -1,5 +1,4 @@
-Chapter 5: Developing a Personalized Interview Preparation Plan
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical process of creating a personalized interview preparation plan. Effective preparation is the key to success in any interview, and tailoring your approach to your specific needs and goals can significantly enhance your chances of landing the job you desire.
 

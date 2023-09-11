@@ -1,5 +1,4 @@
-Chapter 24: Interviews with Successful Job Seekers and Hiring Managers
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll gain valuable insights from interviews with both successful job seekers who have navigated interviews effectively and hiring managers who have extensive experience in evaluating candidates. Their perspectives and advice offer a unique and comprehensive view of the interview process.
 
